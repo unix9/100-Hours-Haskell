@@ -16,3 +16,12 @@ Day 4 (18/2/2023) - Chapter 13 to Chapter 16
 
 Day 5 (19/2/2023) - Chapter 17 + do University problem sheets.
 
+CHAPTER 1 NOTES
+
+oh no, I can't even focus or read the all these texts! hm, maybe i should read line by line slowly? XD, okay nevermind, maybe the seat where I'm sitting on is too noisy for me to focus. Let me go to more quieter study space.
+
+finished my first chapter of reading! quite tiring and mentally exhausting, so i'm probably gonna take a short break.
+
+ok so i've took my short break, now i'll try to do the chapter 1 easy exercises.
+
+i've completed chapter 2 too. i'll probably skip chapter 3 as it mostly says about types and all that stuff which is just the basic stuffs that i already know. i think i'll probably take a break and go to eat at starfried :D.
